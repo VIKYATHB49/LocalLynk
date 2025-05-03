@@ -68,5 +68,5 @@ LocalLynk delivers a seamless and flexible shopping experience for users seeking
 ---
 
 ### 💡 Want to collaborate or explore more?  
-📫 Reach out via [LinkedIn](https://www.linkedin.com/in/vikyath-reddy-samaa-2659b5267/) or drop an email at [samavikyath06394.com]
+📫 Reach out via [LinkedIn](https://www.linkedin.com/in/vikyath-reddy-samaa-2659b5267/) or drop an email at [samavikyath06394@gmail.com]
 
